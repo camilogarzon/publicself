@@ -1,5 +1,5 @@
-/public
-=======
+/publicself
+===========
 
 My public self.
 
