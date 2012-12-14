@@ -3,7 +3,7 @@ My beliefs
 
 On Morality
 -----------
-* Underneath the facade, we are all lovable
+* Underneath the facade, we are all super lovable
 * Gay marriage should be legal everywhere
 * Being good is in our nature (being evil requires misinformation or partial information)
 * Abortion should be legal everywhere
